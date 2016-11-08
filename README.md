@@ -1,0 +1,1 @@
+I am a Humanities student, studying History, German and Arabic. I like coffee, fencing, the outdoors and new interesting things. I am doing a CodeFirst course under Coding For Girls, and this is a readme file I have created. My hat is purple and this room is too warm. I need coffee. I haven't had coffee for four days now. Oh coffee.. I need it fast. Really fast.
